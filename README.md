@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @natavinni
+- 👀 I’m interested in art
+- 📫 How to reach me https://twitter.com/NatavinniA
